@@ -2,7 +2,7 @@
 $\Large{L A N E}$
 </p>
 <p align="center">
-he/him/it, utc+7 <br> feel free to c+h and int <br> https://rentry.co/gendisnuts
+he/him/it, utc+7 <br> feel free to c+h and int <br> https://leifm.carrd.co/#
 </p>
 
 <p align="center">
