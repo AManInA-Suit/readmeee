@@ -10,5 +10,5 @@ i hide and block freely <br> except for eyestrain skins and -15, dni <br> i am a
 </p>
 
 <p align="center">
-{Aku  takut  Untuknya,  oh,  Tuan,  wahai  kematian}
+Aku  takut  Untuknya,  oh,  Tuan,  wahai  kematian
 </p>
