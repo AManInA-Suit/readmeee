@@ -1,8 +1,8 @@
 <p align="center">
-$\Large{L A N E}$
+$\Large{S U I T}$
 </p>
 <p align="center">
-he/him/it, utc+7 <br> feel free to c+h and int <br> https://leifm.carrd.co/#
+he/him, utc+7 <br> feel free to c+h and int <br> https://guns.lol/amaninasuit#
 </p>
 
 <p align="center">
