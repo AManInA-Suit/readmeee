@@ -10,5 +10,7 @@ i hide and block freely <br> except for eyestrain skins and -15, dni <br> i am a
 </p>
 
 <p align="center">
-$\large{all.eyes.on.rafah.🇵🇸}$
+$\large{Aku takut
+Untuknya, oh, Tuan, wahai kematian
+Ku tak bisa melawan}$
 </p>
